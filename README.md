@@ -1,5 +1,15 @@
 ### Hi there 👋
 
+The path 👣 
+           
+           👣
+              👣 of an Engineer shines 🔥 
+                                        🔥🔥
+                                        🔥🔥🔥 as he/she refines his/her craftermanship 👨🏾‍💻
+                                                                                         👨🏾‍💻👩🏾‍💻
+                                                                                         👩🏾‍💻👨🏾‍💻👨🏾‍💻 daily! 
+                                                                                        
+
 <!--
 **iyinraphael/iyinraphael** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
