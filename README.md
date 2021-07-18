@@ -1,14 +1,6 @@
-### Hi there 👋
-
-The path 👣 
-           
-           👣
-              👣 of an Engineer shines 🔥 
-                                        🔥🔥
-                                        🔥🔥🔥 as he/she refines his/her crafts👨🏾‍💻
-                                                                                👨🏾‍💻👩🏾‍💻
-                                                                                👩🏾‍💻👨🏾‍💻👨🏾‍💻 daily! 
-                                                                                        
+### Hi there 👋🏿
+- 👨🏿‍💻 from 🏡 
+- 👨🏿‍💻 all things 🍏
 
 <!--
 **iyinraphael/iyinraphael** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
