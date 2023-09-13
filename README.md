@@ -1,7 +1,6 @@
 ### Hi there 👋🏿
-- 📱🚀 iOS Engineer passionate about creating amazing user experiences.
+- 📱🚀 Software Engineer passionate about creating amazing user experiences.
 - 👨🏿‍💻 from 🏡 
-- 👨🏿‍💻 all things 🍎
 
 <!--
 **iyinraphael/iyinraphael** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
