@@ -1,5 +1,5 @@
 ### Hi there 👋🏿
-- 📱🚀 Software Engineer passionate about creating amazing user experiences.
+- 📱🚀 Creating Value
 - 👨🏿‍💻 from 🏡 
 
 <!--
